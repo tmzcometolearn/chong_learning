@@ -1,2 +1,2 @@
 # chong_learning
-Mingzhe, Linyuan, Shenge GoGoGo!!!
+Mingzhe, Linyuan, Shenge GoGoGo!!!!
